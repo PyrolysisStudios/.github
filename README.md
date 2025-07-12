@@ -4,5 +4,5 @@ Pyrolisis Studios Is A Game Development Studio That Aims To Create Science Theme
 ## <ins>Current Active Projects</ins>
 *Entropic Labs 
 
-Open For People To Join
+##Open For People To Join
 
