@@ -5,5 +5,5 @@ Pyrolisis Studios Is A Game Development Studio That Aims To Create Science Theme
 * [To Be Announced]
 
 ## Open For People To Join
-Contact Me At 
+Contact Nitric Acid At
 > tommypredassifurman@gmail.com
